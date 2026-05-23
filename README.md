@@ -135,3 +135,16 @@ vô sản: anghen
 
 đêmocrit phủ đinh cái ngẫu nhiên
 
+lenin cảm giác đề cập 1 lần
+
+2 tiến trình CMXHCN
+
+tình hình cách mạng XHCN: 2 giai đoạn
+
+chuyên chính cách mạng ng lđ: grakko babop
+
+quá độ LX: 17-38
+
+sư pt tự do: mác
+
+các mác 5/5/1818 - 14/3/1883
