@@ -114,3 +114,24 @@ MÁC: “ YT chẳng qua chỉ là VC đc đem chuyển vào trong đầu óc co
 → Lê-nin: NT là sự tiến gần mãi mãi và vô tận của chủ thể đến khách thể 
 
 Khẳng định không có chất thuần tuý tồn tại mà chỉ có sự vật có chất, hơn nữa sự vật có vô vàn chất mới tồn tại.--> Ăng-ghen, CNDVBC
+
+không tưởng tỉ lệ nghịch với thời gian: mác và anghen
+
+phê phán goota: mác
+
+thuốc phiện: mác
+
+bản chất con người: lc phoi ơ bác
+
+lenin 22/4/1870-21/1/1924
+
+ba làn sóng: alvin tôfolo
+
+anghen nói chủ nghĩa mác cấu bởi 3 bộ phận: chống đuyrinh
+
+mở đầu trào lưu xhcn và cscn cận đại: toomat moro  
+
+vô sản: anghen
+
+đêmocrit phủ đinh cái ngẫu nhiên
+
