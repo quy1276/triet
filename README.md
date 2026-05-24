@@ -188,3 +188,9 @@ phát hiện tia x: 1895
 hđ thực tiễn 3 hthuc
 
 ý thức: tri thức, tình cảm, lý trí
+
+ấn độ: chiêm
+
+cách tl:3
+
+vắn tắt: lênin 
