@@ -125,6 +125,10 @@ bản chất con người: lc phoi ơ bác
 
 lenin 22/4/1870-21/1/1924
 
+các mác 5/5/1818 - 14/3/1883
+
+ang ghen: 28/11/1820 - 5/8/1895
+
 ba làn sóng: alvin tôfolo
 
 anghen nói chủ nghĩa mác cấu bởi 3 bộ phận: chống đuyrinh
@@ -147,4 +151,10 @@ quá độ LX: 17-38
 
 sư pt tự do: mác
 
-các mác 5/5/1818 - 14/3/1883
+ai cũng lao động(tp mặt trời): toomado 
+
+4 mâu thuẫn cơ bản
+
+CNXH hay chết: hugo chavez
+
+xhcs trong lòng tư bản: robert owen
