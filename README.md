@@ -160,3 +160,13 @@ CNXH hay chết: hugo chavez
 xhcs trong lòng tư bản: robert owen
 
 phát hiện: trước mác
+
+mọi ptrao, thành tựu ở anh: ooen
+
+cái nhà nói chung: duy danh
+
+mông muội dã man: phurie
+
+kn chuyên chính vô sản: tuyên ngôn đảng cs
+
+nắm phép biện chứng: phurie
