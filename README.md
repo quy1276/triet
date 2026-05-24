@@ -170,3 +170,21 @@ mông muội dã man: phurie
 kn chuyên chính vô sản: tuyên ngôn đảng cs
 
 nắm phép biện chứng: phurie
+
+nguồn gốc sâu xa: ý thức xh
+
+đặt vde ptrao thực tiễn (ptrao hiện thực): babop
+
+lợi ích chung: ănghen
+
+phá sản: ooen
+
+tầm mắt rộng thiên tài: phurie
+
+trước một bước: kết cấu hạ tầng
+
+phát hiện tia x: 1895
+
+hđ thực tiễn 3 hthuc
+
+ý thức: tri thức, tình cảm, lý trí
