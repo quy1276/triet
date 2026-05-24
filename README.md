@@ -158,3 +158,5 @@ ai cũng lao động(tp mặt trời): toomado
 CNXH hay chết: hugo chavez
 
 xhcs trong lòng tư bản: robert owen
+
+phát hiện: trước mác
